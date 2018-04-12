@@ -1,1 +1,1 @@
-# pubg_radar_with_paket_decrypt
+IF YOU DON'T KNOW HOW TO USE IT, DON'T USE IT!
